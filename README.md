@@ -1,2 +1,2 @@
 # salah
-salah
+https://salah.co.sc
